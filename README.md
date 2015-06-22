@@ -1,4 +1,4 @@
 # MeteorJSTutorials
 
 
-dofo maro release karyu hene.. :p
+Kaam chalu che bhai :P
