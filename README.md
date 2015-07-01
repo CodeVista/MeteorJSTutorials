@@ -3,4 +3,4 @@
 
 Kaam chalu che bhai :P
 
-Gand tari choida... :P
+Tamaru dedication ochhu thai rahyu 6 bhai... :P
